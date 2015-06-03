@@ -63,7 +63,7 @@
 
 + D. 和我签订契约，成为魔法少女吧
 
-7. 现任 TUNA 的 leader 是？
+现任 TUNA 的 leader 是？
 
 + A. 老鹰
 
